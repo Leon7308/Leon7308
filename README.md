@@ -1,4 +1,4 @@
-## Hey There, I'm Archit Sengupta. Thanks for stopping by! <img src="https://media.giphy.com/media/26Fxy3Iz1ari8oytO/giphy.gif" width="40">
+## Helloooo, I'm Archit Sengupta. Thanks for stopping by! <img src="https://media.giphy.com/media/26Fxy3Iz1ari8oytO/giphy.gif" width="40">
 ---
 
 ### About me
