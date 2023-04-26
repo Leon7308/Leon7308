@@ -43,7 +43,6 @@
 
 * I love playing games - Board games and Video games 🎮
 * I like to think I am decent at chess ♟️ 
-* Lifting heavy weights boosts my ego a little 🏋️
 * I love going out and hiking! ⛰️ 
 
 
