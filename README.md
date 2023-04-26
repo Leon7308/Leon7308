@@ -5,7 +5,6 @@
 
 * Computer Science and Data Science Grad 🎓 
 * Looking for entry level opportunities, so feel free to contact me (details below) 💌
-* I enjoy using Data to solve problems 📈 
 * My Areas of interest are - Data Science, Machine Learning, Data Vizualization, Augmented Reality, and Software Development 🤓
 * I love a new challenge 😤
 <br><br>
