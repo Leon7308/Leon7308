@@ -43,7 +43,7 @@
 
 * I love playing games - Board games and Video games 🎮
 * I like to think I am decent at chess ♟️ 
-* I love going out and hiking! ⛰️ 
+* I love taking walks and going hiking! ⛰️ 
 
 
 #### I'd love to hear from you! 
