@@ -40,7 +40,7 @@
 
 #### Hobbies 
 
-* I love playing games - Board games and Video games 🎮
+* I love playing Board games and Video games 🎮
 * I like to think I am decent at chess ♟️ 
 * I love taking walks and going hiking! ⛰️ 
 
