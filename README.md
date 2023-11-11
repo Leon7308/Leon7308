@@ -5,8 +5,8 @@
 
 * Computer Science and Data Science Grad 🎓 
 * Looking for entry level opportunities, so feel free to contact me (details below) 💌
-* My Areas of interest are - Data Science, Machine Learning, Data Vizualization, Augmented Reality, and Software Development 🤓
-* I love a new challenge 😤
+* My Areas of interest are - Data Science, Machine Learning, Data Vizualization, Augmented Reality, and Software Development 
+* I love a new challenge!
 <br><br>
 ### Tech Skills
 
@@ -37,12 +37,11 @@
 ![Unity](https://img.shields.io/badge/-Unity-000?&logo=Unity)
 ![Flutter](https://img.shields.io/badge/-Flutter-000?&logo=Flutter)
 
-
 #### Hobbies 
 
-* I love playing Board games and Video games 🎮
-* I like to think I am decent at chess ♟️ 
-* I love taking walks and going hiking! ⛰️ 
+* I love playing Board games and Video games 
+* I like to think I am decent at chess 
+* I love taking walks and going hiking!  
 
 
 #### I'd love to hear from you! 
