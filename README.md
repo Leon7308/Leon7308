@@ -40,7 +40,7 @@
 #### Hobbies 
 
 * I love playing Board games and Video games 
-* I like to think I am decent at chess 
+* I like to think I am decent at chess. Go ahead and challenge me and I would love to play! 
 * I love taking walks and going hiking!  
 
 
